@@ -1,24 +1,26 @@
-AROMAL J
-Devanandha. L.S
+AROMAL J. present
+Devanandha. L.S = fake friend
 Anjali S
 Amrutha R S present 
 Aparna A
 Aparna A
 Anjana Sugunan.B 
+Devananda Joshy Present 
+Anjana Sugunan.B  Present
 Devananda Joshy
 Gayathri J 
 Jophin Jith
 Gouri P
 hritik 
 Abhimanyu M S
-Fathima Suhyr 
+Fathima Suhyr - present
 BHAGATH P 
 Jophin Jith
-Agrima S R 
-D Gowry Rejith 
+Agrima S R              present 
+D Gowry Rejith "Present"
 Devkrishnan H P
 Aslah Ashraf 
-Adwayth Arun 
+Adwayth Arun present
 Devaanand s
 Anagha T A
 Deepak P
@@ -34,14 +36,15 @@ ANASUYA GANESH
 Lekshman Suresh 
 Nandana R
 Hridaya SR 
-Al. Ameen. S
+Al. Ameen. S  PRESENT
 Gautham G
 B S ASWIN RAJ
 Alan andrew
 Alan andrew
 Aatish Manoj
-Devika B
+Devika B           Present
 Anand
 Abhijith T 
 Devajith H
-
+Adithya k
+helloooooooooooooooooooo
